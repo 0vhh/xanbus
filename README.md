@@ -5,4 +5,4 @@
 - 🤔 I’m looking for staff members
 - 💬 Ask me about anything
 - 📫 How to reach me: Discord: 0vhh
-- 💻 https://discord.gg/xmarket
+- 💻 https://discord.gg/rgh
